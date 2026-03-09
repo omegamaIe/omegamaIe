@@ -1,4 +1,4 @@
-<img src="https://wilardo.crd.co/assets/images/gallery07/b59b90fe.png?v=ca679d09" alt="82"/>
+<img src="https://i.imgur.com/Pu7df10.png" alt="82"/>
 <img src="https://wilardo.crd.co/assets/images/gallery31/4fb14729.png?v=ca679d09" alt="82"/>
 
 [Rentry](https://rentry.co/epilogueboyfriend) | [strawpage](https://partyyybeetle.straw.page/) | [Ata](https://moonlitflowerrs.atabook.org/)
