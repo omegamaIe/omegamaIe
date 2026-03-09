@@ -8,6 +8,3 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=cdsvosszvb2jw2rjkhqk284je&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=623c42&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-PLEASE READ RENTRY LINKED BELOW ! VERY IMPORTANT !
-
-[Rentry for Situation](https://rentry.co/flowerrssituation)
