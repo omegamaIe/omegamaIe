@@ -20,9 +20,11 @@ $$\color{#d5c5c8}{৻ꪆ}$$
 </div>
 <div align="center"><sup>
 
-$$\color{#9ea3a6}{𐂯}$$  ㅤ  
-[strawpage](https://omegamale.straw.page) ⸝⸝ 
-[新book](https://queerslop.atabook.org/) ⸝⸝ 
+$$\color{#9ea3a6}{𐂯}$$   ⸝⸝ 
+[strawpage](https://omegamale.straw.page)
+ ㅤ ◞ ˳ ㅤ 
+[新book](https://queerslop.atabook.org/)
+ ㅤ  𓏽⑅ ㅤ
 [♡yume](https://redhoodaholic.straw.page)
 </div></sup>
 
