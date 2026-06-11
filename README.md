@@ -5,7 +5,7 @@
 </div></sup>
 <div align="center"><sub>
   
-૮ ![](https://komarev.com/ghpvc/?username=omegamaie&color=db7f8e&label=+꒰˵•+ﻌ+•˵꒱&base=12482580) ა
+![](https://komarev.com/ghpvc/?username=omegamaie&color=db7f8e&label=+૮+꒰˵•+ﻌ+•˵꒱ა&base=12482580)
  ㅤ  ㅤ
 <img src="https://i.postimg.cc/PxzX2Lhf/IMG_1232.gif" alt="82">
 ㅤ  ㅤ
