@@ -1,20 +1,20 @@
 <div align="center"><sup>
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Emilys+Candy&pause=1000&color=e8b49e&width=435&center=true&vCenter=true&lines=How+could+I+forget+your+pretty+face?;When+you+go+to+places;do+you+think+of+me?;Please+think+of+me.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Emilys+Candy&pause=1000&color=ffdbdb&width=435&center=true&vCenter=true&lines=How+could+I+forget+your+pretty+face?;When+you+go+to+places;do+you+think+of+me?;Please+think+of+me.)](https://git.io/typing-svg)
 
 </div></sup>
 <div align="center"><sub>
   
-૮ ![](https://komarev.com/ghpvc/?username=omegamaie&color=e8b49e&label=+꒰˵•+ﻌ+•˵꒱&base=12482580) ა
+૮ ![](https://komarev.com/ghpvc/?username=omegamaie&color=db7f8e&label=+꒰˵•+ﻌ+•˵꒱&base=12482580) ა
  ㅤ  ㅤ
 <img src="https://i.postimg.cc/PxzX2Lhf/IMG_1232.gif" alt="82">
 ㅤ  ㅤ
 ་ ˳ㅤ 
-$$\color{#efd9c2}{৻ꪆ}$$
+$$\color{#d5c5c8}{৻ꪆ}$$
 </div></sub>
 <div align="center"><sup>
 
-$$\color{#e8b49e}{𐂯}$$  𓏽 
+$$\color{#db7f8e}{𐂯}$$  𓏽 
 [strawpage](https://omegamale.straw.page) ⸝⸝ 
 [新book](https://queerslop.atabook.org/) ⸝⸝ 
 [♡yume](https://redhoodaholic.straw.page)
@@ -23,22 +23,22 @@ $$\color{#e8b49e}{𐂯}$$  𓏽
 <div align="center"><sub>
 
 ಇ. ㅤ 
-$$\color{#efd9c2}{o}$$
-$$\color{#efd9c2}{𝐟}$$
-$$\color{#efd9c2}{𝘧}$$
-$$\color{#efd9c2}{i}$$
-$$\color{#efd9c2}{𝐜}$$
-$$\color{#efd9c2}{𝐢}$$
-$$\color{#efd9c2}{𝐚}$$
-$$\color{#efd9c2}{𝐥}$$
-$$\color{#efd9c2}{l}$$
-$$\color{#efd9c2}{𝐲}$$
+$$\color{#d5c5c8}{o}$$
+$$\color{#d5c5c8}{𝐟}$$
+$$\color{#d5c5c8}{𝘧}$$
+$$\color{#d5c5c8}{i}$$
+$$\color{#d5c5c8}{𝐜}$$
+$$\color{#d5c5c8}{𝐢}$$
+$$\color{#d5c5c8}{𝐚}$$
+$$\color{#d5c5c8}{𝐥}$$
+$$\color{#d5c5c8}{l}$$
+$$\color{#d5c5c8}{𝐲}$$
  ㅤ  ㅤ
-$$\color{#a4a289}{j}$$
-$$\color{#a4a289}{ค}$$
-$$\color{#a4a289}{𝘀}$$
-$$\color{#a4a289}{o}$$
-$$\color{#a4a289}{n}$$
+$$\color{#681704}{j}$$
+$$\color{#681704}{ค}$$
+$$\color{#681704}{𝘀}$$
+$$\color{#681704}{o}$$
+$$\color{#681704}{n}$$
  ㅤ  ㅤ
 $$\color{#87785b}{t}$$
 $$\color{#87785b}{o}$$
@@ -46,9 +46,9 @@ $$\color{#87785b}{d}$$
 $$\color{#87785b}{d}$$
 $$\color{#87785b}{s}$$
 ㅤ#1 ㅤ་ ˳ㅤ 
-$$\color{#efd9c2}{f}$$
-$$\color{#efd9c2}{a}$$
-$$\color{#efd9c2}{n}$$
+$$\color{#d5c5c8}{f}$$
+$$\color{#d5c5c8}{a}$$
+$$\color{#d5c5c8}{n}$$
 
 [@fan-town](https://github.com/fan-town)
 </div></sub>
