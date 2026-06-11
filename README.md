@@ -12,6 +12,12 @@
 ་ ˳ㅤ 
 $$\color{#d5c5c8}{৻ꪆ}$$
 </div></sub>
+
+<div align="center">
+  
+<img src="https://64.media.tumblr.com/34d29003c7d6c2a1b1b80604420bb6fc/121136bb4e82fe5d-9d/s1280x1920/0bd9c4152899ef88e7987a75ab1d3dee6dce2a00.pnj" width="600">
+
+</div>
 <div align="center"><sup>
 
 $$\color{#9ea3a6}{𐂯}$$  𓏽 
