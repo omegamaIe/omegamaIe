@@ -20,7 +20,7 @@ $$\color{#d5c5c8}{৻ꪆ}$$
 </div>
 <div align="center"><sup>
 
-$$\color{#9ea3a6}{𐂯}$$  𓏽 
+$$\color{#9ea3a6}{𐂯}$$  ㅤ  
 [strawpage](https://omegamale.straw.page) ⸝⸝ 
 [新book](https://queerslop.atabook.org/) ⸝⸝ 
 [♡yume](https://redhoodaholic.straw.page)
