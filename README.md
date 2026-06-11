@@ -1,16 +1,60 @@
-<img src="https://i.imgur.com/3xMso0h.png" alt="82"/>
-<img src="https://wilardo.crd.co/assets/images/gallery31/4fb14729.png?v=ca679d09" alt="82"/>
+<div align="center"><sup>
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Emilys+Candy&pause=1000&color=e8b49e&width=435&center=true&vCenter=true&lines=How+could+I+forget+your+pretty+face?;When+you+go+to+places;do+you+think+of+me?;Please+think+of+me.)](https://git.io/typing-svg)
 
-Officially Jason Todd's #1 Fan!! [@fan-town](https://github.com/fan-town)
+</div></sup>
+<div align="center"><sub>
+  
+૮ ![](https://komarev.com/ghpvc/?username=omegamaie&color=e8b49e&label=+꒰˵•+ﻌ+•˵꒱) ა
+ ㅤ  ㅤ
+<img src="https://i.postimg.cc/PxzX2Lhf/IMG_1232.gif" alt="82">
+ㅤ  ㅤ
+་ ˳ㅤ 
+$$\color{#efd9c2}{৻ꪆ}$$
+</div></sub>
+<div align="center"><sup>
 
-[Strawpage.ᐟ.ᐟ](https://omegamale.straw.page) ⸝⸝ <img src="https://wilardo.crd.co/assets/images/gallery04/b22c1aa5.gif?v=f1379c3e" alt="15"/> ⸝⸝ [Ata.ᐟ.ᐟ](https://queerslop.atabook.org/) ⸝⸝ [Red Hood♡](https://redhoodaholic.straw.page)
+$$\color{#e8b49e}{𐂯}$$  𓏽 
+[strawpage](https://omegamale.straw.page) ⸝⸝ 
+[新book](https://queerslop.atabook.org/) ⸝⸝ 
+[♡yume](https://redhoodaholic.straw.page)
+</div></sup>
 
-<sup> c+h ok 𖹭.ᐟ Don't take inspiration from / copy my pony's design exactly, okay? ok. </sup>
-<sup>Thank you for reading.ᐟ.ᐟ ദ്ദി◝ ⩊ ◜.ᐟ </sup>
+<div align="center"><sub>
+
+ಇ. ㅤ 
+$$\color{#efd9c2}{o}$$
+$$\color{#efd9c2}{𝐟}$$
+$$\color{#efd9c2}{𝘧}$$
+$$\color{#efd9c2}{i}$$
+$$\color{#efd9c2}{𝐜}$$
+$$\color{#efd9c2}{𝐢}$$
+$$\color{#efd9c2}{𝐚}$$
+$$\color{#efd9c2}{𝐥}$$
+$$\color{#efd9c2}{l}$$
+$$\color{#efd9c2}{𝐲}$$
+ ㅤ  ㅤ
+$$\color{#a4a289}{j}$$
+$$\color{#a4a289}{ค}$$
+$$\color{#a4a289}{𝘀}$$
+$$\color{#a4a289}{o}$$
+$$\color{#a4a289}{n}$$
+ ㅤ  ㅤ
+$$\color{#87785b}{t}$$
+$$\color{#87785b}{o}$$
+$$\color{#87785b}{d}$$
+$$\color{#87785b}{d}$$
+$$\color{#87785b}{s}$$
+ㅤ#1 ㅤ་ ˳ㅤ 
+$$\color{#efd9c2}{f}$$
+$$\color{#efd9c2}{a}$$
+$$\color{#efd9c2}{n}$$
+
+[@fan-town](https://github.com/fan-town)
+</div></sub>
+
+<div align="center">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=cdsvosszvb2jw2rjkhqk284je&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=623c42&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-
-<img src="https://i.pinimg.com/originals/27/c3/dd/27c3dd97042a2cdc91b834c11cb54bb3.gif" alt="82"/>
-
-<img src="https://i.pinimg.com/1200x/b9/df/db/b9dfdb9be1f45318c97647660d6f1cd7.jpg" alt="82"/>
+</div>
