@@ -14,7 +14,7 @@ $$\color{#d5c5c8}{৻ꪆ}$$
 </div></sub>
 <div align="center"><sup>
 
-$$\color{#db7f8e}{𐂯}$$  𓏽 
+$$\color{#9ea3a6}{𐂯}$$  𓏽 
 [strawpage](https://omegamale.straw.page) ⸝⸝ 
 [新book](https://queerslop.atabook.org/) ⸝⸝ 
 [♡yume](https://redhoodaholic.straw.page)
@@ -40,11 +40,11 @@ $$\color{#681704}{𝘀}$$
 $$\color{#681704}{o}$$
 $$\color{#681704}{n}$$
  ㅤ  ㅤ
-$$\color{#87785b}{t}$$
-$$\color{#87785b}{o}$$
-$$\color{#87785b}{d}$$
-$$\color{#87785b}{d}$$
-$$\color{#87785b}{s}$$
+$$\color{#614e54}{t}$$
+$$\color{#614e54}{o}$$
+$$\color{#614e54}{d}$$
+$$\color{#614e54}{d}$$
+$$\color{#614e54}{s}$$
 ㅤ#1 ㅤ་ ˳ㅤ 
 $$\color{#d5c5c8}{f}$$
 $$\color{#d5c5c8}{a}$$
