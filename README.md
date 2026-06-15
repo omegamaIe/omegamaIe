@@ -1,26 +1,26 @@
 <div align="center"><sup>
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Emilys+Candy&pause=1000&color=ffdbdb&width=435&center=true&vCenter=true&lines=How+could+I+forget+your+pretty+face?;When+you+go+to+places;do+you+think+of+me?;Please+think+of+me.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Emilys+Candy&pause=1000&color=c9d0e5&width=435&center=true&vCenter=true&lines=How+could+I+forget+your+pretty+face?;When+you+go+to+places;do+you+think+of+me?;Please+think+of+me.)](https://git.io/typing-svg)
 
 </div></sup>
 <div align="center"><sub>
   
-![](https://komarev.com/ghpvc/?username=omegamaie&color=db7f8e&label=+૮+꒰˵•+ﻌ+•˵꒱ა&base=12482580)
+![](https://komarev.com/ghpvc/?username=omegamaie&color=c08daa&label=+૮+꒰˵•+ﻌ+•˵꒱ა&base=12482580)
  ㅤ  ㅤ
 <img src="https://i.postimg.cc/PxzX2Lhf/IMG_1232.gif" alt="82">
 ㅤ  ㅤ
 ་ ˳ㅤ 
-$$\color{#d5c5c8}{৻ꪆ}$$
+$$\color{#d0a7b8}{৻ꪆ}$$
 </div></sub>
 
 <div align="center">
   
-<img src="https://64.media.tumblr.com/34d29003c7d6c2a1b1b80604420bb6fc/121136bb4e82fe5d-9d/s1280x1920/0bd9c4152899ef88e7987a75ab1d3dee6dce2a00.pnj" width="600">
+<img src="https://64.media.tumblr.com/b9f92304a17e3a2e185e17551a6402b6/84d7c0bf5ed5a7ae-fc/s1280x1920/cafe09bceae329efa6d47a0ab87a8d464f9b19fc.pnj" width="600">
 
 </div>
 <div align="center"><sup>
 
-$$\color{#9ea3a6}{𐂯}$$   ⸝⸝ 
+$$\color{#c9c6da}{𐂯}$$   ⸝⸝ 
 [𝗌𝗍𝗋αωρα𝗀𝖾](https://omegamale.straw.page)
  ㅤ ◞ ˳ ㅤ 
 [新ᑲⱺⱺ𝗄](https://queerslop.atabook.org/)
@@ -54,9 +54,9 @@ $$\color{#735b53}{d}$$
 $$\color{#735b53}{ԃ}$$
 $$\color{#735b53}{s}$$
 ㅤ#1 ㅤ་ ˳ㅤ 
-$$\color{#d5c5c8}{ᵳ}$$
-$$\color{#d5c5c8}{ᥲ}$$
-$$\color{#d5c5c8}{𐓣}$$
+$$\color{#d0a7b8}{ᵳ}$$
+$$\color{#d0a7b8}{ᥲ}$$
+$$\color{#d0a7b8}{𐓣}$$
 
 [@fan-town](https://github.com/fan-town)
 </div></sub>
