@@ -21,11 +21,11 @@ $$\color{#d5c5c8}{৻ꪆ}$$
 <div align="center"><sup>
 
 $$\color{#9ea3a6}{𐂯}$$   ⸝⸝ 
-[strawpage](https://omegamale.straw.page)
+[𝗌𝗍𝗋αωρα𝗀𝖾](https://omegamale.straw.page)
  ㅤ ◞ ˳ ㅤ 
-[新book](https://queerslop.atabook.org/)
+[新ᑲⱺⱺ𝗄](https://queerslop.atabook.org/)
  ㅤ  𓏽⑅ ㅤ
-[♡yume](https://redhoodaholic.straw.page)
+[♡ɣυო౿](https://redhoodaholic.straw.page)
 </div></sup>
 
 <div align="center"><sub>
@@ -42,21 +42,21 @@ $$\color{#d5c5c8}{𝐥}$$
 $$\color{#d5c5c8}{l}$$
 $$\color{#d5c5c8}{𝐲}$$
  ㅤ  ㅤ
-$$\color{#d65353}{j}$$
+$$\color{#d65353}{ʝ}$$
 $$\color{#d65353}{ค}$$
 $$\color{#d65353}{𝘀}$$
 $$\color{#d65353}{o}$$
 $$\color{#d65353}{n}$$
  ㅤ  ㅤ
-$$\color{#735b53}{t}$$
+$$\color{#735b53}{т}$$
 $$\color{#735b53}{o}$$
 $$\color{#735b53}{d}$$
-$$\color{#735b53}{d}$$
+$$\color{#735b53}{ԃ}$$
 $$\color{#735b53}{s}$$
 ㅤ#1 ㅤ་ ˳ㅤ 
-$$\color{#d5c5c8}{f}$$
-$$\color{#d5c5c8}{a}$$
-$$\color{#d5c5c8}{n}$$
+$$\color{#d5c5c8}{ᵳ}$$
+$$\color{#d5c5c8}{ᥲ}$$
+$$\color{#d5c5c8}{𐓣}$$
 
 [@fan-town](https://github.com/fan-town)
 </div></sub>
