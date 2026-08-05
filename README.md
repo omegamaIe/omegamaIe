@@ -58,7 +58,7 @@ $$\color{#d0a7b8}{ᵳ}$$
 $$\color{#d0a7b8}{ᥲ}$$
 $$\color{#d0a7b8}{𐓣}$$
 
-[@fan-town](https://github.com/fan-town)
+[@fans-town](https://github.com/fans-town)
 
 <img src="https://64.media.tumblr.com/60d26e1cd9c9f898afb86ab23c1f1537/69dcda1eed0fee42-8f/s250x400/246b480e4774af20fe9bffaa4ce92018c12fac57.gifv" width="100">
 <img src="https://private-user-images.githubusercontent.com/117056366/610233704-6eeb5f0c-0e53-4414-8b96-f392c3b90d5f.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODE4Mzk1NTksIm5iZiI6MTc4MTgzOTI1OSwicGF0aCI6Ii8xMTcwNTYzNjYvNjEwMjMzNzA0LTZlZWI1ZjBjLTBlNTMtNDQxNC04Yjk2LWYzOTJjM2I5MGQ1Zi5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNjE5JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDYxOVQwMzIwNTlaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT03NzJlZTNlZDdhYmIyMWM3NmZjYmZjYTljZWQxMDFhZmUzYmMzMjQxYmUxODgyYWU1NDU0NjNiOGI1ZmIyYjBjJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZwbmcifQ.j3AK991Pe7kROeTGSageDR8VnloMt2Wgza_IHBojTy8">
