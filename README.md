@@ -28,6 +28,6 @@ $$\color{#F7E6F1}{𝗌𝗍𝗋αωρα𝗀𝖾}$$ [<img src="https://64.media.tu
 
 <div align="right"><sub>
   
-doc! pls read : [response to @seb & @mattie](https://docs.google.com/document/d/1l6IqZlQRzFOSc3J94z5RJZ6U153htEv4OaFvk_0iouQ/edit?tab=t.0#heading=h.mywrpmu13gw1)
+doc! pls read : [response to @seb & @mattie](https://docs.google.com/document/d/1NQcBInJuZsqC1Ql0L2-gbY3mjiWZqAQeIExmXIgDch0/edit?usp=sharing)
 
 </div></sub>
