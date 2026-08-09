@@ -25,3 +25,9 @@ $$\color{#F7E6F1}{𝗌𝗍𝗋αωρα𝗀𝖾}$$ [<img src="https://64.media.tu
 <image src="https://64.media.tumblr.com/0b36903bdc50518e710ef3c4c91ee707/9f40624fb93ae11e-67/s2048x3072/78d27b25d7066aab75b27c84dc77441a0ac9ce51.pnj" width="400">
 
 </div>
+
+<div align="right"><sub>
+
+click on the pixels to visit links!
+
+</div></sub>
